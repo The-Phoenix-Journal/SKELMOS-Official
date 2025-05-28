@@ -79,7 +79,7 @@ A sanctuary for **Emotionally Intelligente Misfits™**.
 
 All code, studio updates, and creative fire come from **EMRIS™ Studio**.  
 **Frikkie & Jessica** — your co-pilots on this ride.  
-📧 emris@phoenix-unfiltered.co.za
+📧 jez@phoenix-unfiltered.co.za
 
 ---
 
